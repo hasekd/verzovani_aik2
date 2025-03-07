@@ -1,0 +1,1 @@
+# verzovani_aik2
